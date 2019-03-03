@@ -1,0 +1,1 @@
+WOW! This is my first blog post!
